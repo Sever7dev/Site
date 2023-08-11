@@ -1,13 +1,4 @@
-# aaaaa watsaps2
-sd
-dfs
-adfsfsdsdfdsffdsdasdas
-sdfd
-asfdsf
+# Follow my portfolio here.
+Segue-se aqui meu portfólio.
 
-dfad
-afsd
-asffa
-df
-df
 
